@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About me:
 Currently studying electronical engineering at Hacettepe University.<br>
 
 
